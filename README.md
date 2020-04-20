@@ -1,1 +1,0 @@
-The purpose of this site is to inspire people to develop strong habits and cultivate good virtues. I am making this with the hope that we emerge from this quarantine a little bit kinder or a little bit stronger.
